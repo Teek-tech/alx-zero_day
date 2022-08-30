@@ -1,1 +1,1 @@
-A new note
+A new note begins
